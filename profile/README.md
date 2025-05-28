@@ -2,6 +2,8 @@
 
 **Cupcake 2048 Online** is not your average puzzle game—it's an **epic twist** on the classic 2048, where delicious cupcakes replace dull numbers. This **crazy addicting** game combines **hyper-casual gameplay** with a visually delightful design, making it perfect for players of all ages who love a sweet challenge.
 
+## <a href="https://1kb.link/ho84ZM">👉 Play Cupcake 2048 Unblocked Games NOW 👈</a>
+
 ---
 
 ### 🍰 **Why Cupcake 2048 is So Addictive**
